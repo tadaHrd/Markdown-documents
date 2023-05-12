@@ -1,4 +1,4 @@
-1. Follow [Discord Terms Of Service]((https://discord.com/terms)
+1. Follow [Discord Terms Of Service](https://discord.com/terms)
 2. Being on this server is a priviledge, not a right; follow the rules
 3. Be nice to people
 5. Don't spam moderators
